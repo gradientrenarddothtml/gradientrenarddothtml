@@ -1,4 +1,4 @@
-I'm Renard/Viktor, I use he/him pronouns
+Idk just call me Flake or something, they/them
 <br/>
 Collabs: no
 <br/>
