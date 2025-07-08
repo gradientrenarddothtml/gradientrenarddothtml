@@ -1,7 +1,7 @@
-Idk just call me Flake or something, they/them
+Idk just call me Renard or something, she/they/he
 <br/>
 Collabs: no
 <br/>
-Age: minor
+Age: 15
 <br/>
-Reach me out at @thedevillover. on Discord
+Reach me out at @filesystem.09 on Discord
